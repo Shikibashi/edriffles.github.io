@@ -9,9 +9,15 @@ tags: kpop, artms
 
 [On March 17, 2023, HeeJin, Kim Lip, JinSoul, and Choerry were announced to have signed an exclusive contract with MODHAUS](https://entertain.naver.com/now/read?oid=117&aid=0003708500)
 
+%[https://entertain.naver.com/now/read?oid=117&aid=0003708500] 
+
 [On March 31, 2023, NME releases the Jaden interview](https://www.nme.com/news/music/loona-modhaus-heejin-kim-lip-jinsoul-choerry-jaden-jeong-plans-future-3423740)
 
+%[https://www.nme.com/news/music/loona-modhaus-heejin-kim-lip-jinsoul-choerry-jaden-jeong-plans-future-3423740] 
+
 [On March 31, 2023, Modhaus' opens the ARTMS twitter account.](https://twitter.com/official_artms/status/1641821947565867010)
+
+%[https://twitter.com/official_artms/status/1641821947565867010] 
 
 [On April 5, 2023, members of the ARTMS project gathered for a profile photoshoot. After discussing the significance of the photoshoot with Modhaus, they expressed excitement about releasing content. They brainstormed potential titles for their content, including "Timeline," "Moon Feed," "Orbital Flight," "Moonlight," "Explorational Journal," and "Days of (4)." They decided on the title "Explore Log" and planned their first itinerary, which would be a trip to Busan. The members expressed anticipation for the upcoming Busan Explore Log and discussed activities such as swimming and driving.](https://www.youtube.com/watch?v=7aFU-Ick8go)
 
