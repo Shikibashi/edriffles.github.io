@@ -99,6 +99,43 @@ On April 22, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
 
 %[https://twitter.com/official_artms/status/1649759962195808258] 
 
-On April 23, 2023, at 9 AM EST, Modhaus Releases Can They Make it to Busan? | EN JP CN | Explore Log Ep. 1
+On April 23, 2023, at 9 AM EST, Modhaus Releases "Can They Make it to Busan? | Explore Log Ep. 1" The Episode was filmed on April 17th, 2023.
 
-%[https://twitter.com/official_artms/status/1650126797663801344]
+%[https://twitter.com/official_artms/status/1650126797663801344] 
+
+%[https://www.youtube.com/watch?v=pK6N7NvLkrY] 
+
+On April 24, 2023, at 9:01 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1650485083143544833] 
+
+On April 25, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1650847130129506305] 
+
+  
+On April 26, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1651209514065231873] 
+
+  
+On April 27, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut  
+
+%[https://twitter.com/official_artms/status/1651571914266259458] 
+
+  
+On April 28, 2023, at 9:02 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1651934863858237440] 
+
+  
+On April 29, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1652296677242331139] 
+
+  
+On April 30, 2023, at 9:05 AM EST, Modhaus released "**Haeundae over Santa Monica | Explore Log Ep. 2"**
+
+%[https://twitter.com/official_artms/status/1652660331364372480] 
+
+%[https://www.youtube.com/watch?v=A0W0ZRYe8R0]
