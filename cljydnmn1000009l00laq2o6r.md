@@ -23,7 +23,7 @@ On Apr 9, 2023, at 11:00 AM EST, Modhaus releases Choerry Verified Beauty photos
 
 %[https://twitter.com/official_artms/status/1645079278839799808] 
 
-On April 10th, 2023, at 11 AM EST, Modhaus releases the JinSoul Verified Beauty photoshoo
+On April 10th, 2023, at 11 AM EST, Modhaus releases the JinSoul Verified Beauty photoshoot
 
 %[https://twitter.com/official_artms/status/1645441532932263938] 
 
@@ -95,10 +95,10 @@ On April 22, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
 
 %[https://twitter.com/official_artms/status/1649759962195808258] 
 
-On April 22, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut  
+On April 22, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
 
 %[https://twitter.com/official_artms/status/1649759962195808258] 
 
-On April 23, 2023, at 9 AM EST, Modhaus Releases Can They Make it to Busan? | EN JP CN | Explore Log Ep. 1  
+On April 23, 2023, at 9 AM EST, Modhaus Releases Can They Make it to Busan? | EN JP CN | Explore Log Ep. 1
 
 %[https://twitter.com/official_artms/status/1650126797663801344]
