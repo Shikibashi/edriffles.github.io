@@ -644,14 +644,20 @@ On July 9, 2023, at 9 AM EST, Modhaus releases **Special puppy Haseul's cafe eve
 On July 10, 2023, at 11 AM EST, Modhaus releases 𝐎𝐃𝐃 𝐄𝐘𝐄 𝐂𝐈𝐑𝐂𝐋𝐄 &lt;𝐕𝐞𝐫𝐬𝐢𝐨𝐧 𝐔𝐩&gt; 𝐃-𝟏 tweet
 
 %[https://twitter.com/official_artms/status/1678418892744450048]
+
 %[https://twitter.com/official_artms/status/1678418937812246529] 
- %[https://twitter.com/official_artms/status/1678419085086937095]
+
+%[https://twitter.com/official_artms/status/1678419085086937095]
 
 On July 10, 2023 Modhaus retweets, Teen Vogues Article on "Culture After LOONA Legal Battles, Kim Lip, JinSoul, and Choerry Kickoff ARTMS Collective With New Odd Eye Circle Album" In 2017, LOONA's sub-unit Odd Eye Circle, consisting of Kim Lip, JinSoul, and Choerry, released music that contributed to LOONA's success. Recently, all 12 members of LOONA left their previous management company amid contract disputes and lawsuits, signaling an end to the group as it was known. Odd Eye Circle, along with other former LOONA members, reunited with LOONA's early-stage creative producer Jaden Jeong at his label Modhaus, under the new brand ARTMS, with the aim of continuing LOONA's legacy. Odd Eye Circle released their second album, Version Up, with the anticipation of a brighter future for the group. The members of Odd Eye Circle reflect on their journey, their growth as artists, and their excitement about reuniting under the guidance of Jaden Jeong. They strive to showcase their mature side and different charms through music while maintaining their roots. 
 
-%[https://twitter.com/TeenVogue/status/1678568081575104518] %[https://www.teenvogue.com/story/loona-kim-lip-jinsoul-choerry-kickoff-artms-collective-new-odd-eye-circle-album-interview?utm_source=twitter&utm_medium=social&utm_social-type=owned&mbid=social_twitter&utm_brand=tv]
+%[https://twitter.com/TeenVogue/status/1678568081575104518]
 
-On July 11, 2023, at 5:18 AM EST, Modhaus Releases %https://twitter.com/official_artms/status/1678695162602729473]
+%[https://www.teenvogue.com/story/loona-kim-lip-jinsoul-choerry-kickoff-artms-collective-new-odd-eye-circle-album-interview?utm_source=twitter&utm_medium=social&utm_social-type=owned&mbid=social_twitter&utm_brand=tv]
+
+On July 11, 2023, at 5:18 AM EST, Modhaus Releases 
+
+%https://twitter.com/official_artms/status/1678695162602729473]
 
 On July 11, 2023, at 11 AM EST, Modhaus releases the premiere for ODD EYE CIRCLE "Air Force One" Music Video 
 
