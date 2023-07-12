@@ -589,6 +589,7 @@ On July 6, 2023, at 9 AM EST, Modhaus releases an ARTMS short
 On July 6, 2023, at 11 AM EST, Modhaus releases
 
 %[https://twitter.com/official_artms/status/1676969346097364993] 
+
 On July 6, 2023, at 11 AM EST, Modhaus releases
 
 %[https://twitter.com/official_artms/status/1676969412853927942] On July 6, 2023, at 11 AM EST, Modhaus releases
@@ -657,7 +658,7 @@ On July 10, 2023 Modhaus retweets, Teen Vogues Article on "Culture After LOONA L
 
 On July 11, 2023, at 5:18 AM EST, Modhaus Releases 
 
-%https://twitter.com/official_artms/status/1678695162602729473]
+%[https://twitter.com/official_artms/status/1678695162602729473]
 
 On July 11, 2023, at 11 AM EST, Modhaus releases the premiere for ODD EYE CIRCLE "Air Force One" Music Video 
 
