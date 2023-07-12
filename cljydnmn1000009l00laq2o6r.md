@@ -105,7 +105,7 @@ On April 22, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
 
 %[https://twitter.com/official_artms/status/1649759962195808258] 
 
-On April 23, 2023, at 9 AM EST, Modhaus Releases "Can They Make it to Busan? | Explore Log Ep. 1" The Episode was filmed on April 17th, 2023.
+On April 23, 2023, at 9 AM EST, Modhaus Releases "Can They Make it to Busan? | Explore Log Ep. 1" Starts being filmed at SRT Suseo Station on April 17th, 2023.
 
 %[https://twitter.com/official_artms/status/1650126797663801344] 
 
@@ -135,8 +135,106 @@ On April 29, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
 
 %[https://twitter.com/official_artms/status/1652296677242331139] 
 
-On April 30, 2023, at 9:05 AM EST, Modhaus released "**Haeundae over Santa Monica | Explore Log Ep. 2"** Filmed on April 17th, 2023.
+On April 30, 2023, at 9:05 AM EST, Modhaus released "**Haeundae over Santa Monica | Explore Log Ep. 2"** Starts being filmed at Busan Station on April 17th, 2023.
 
 %[https://twitter.com/official_artms/status/1652660331364372480] 
 
-%[https://www.youtube.com/watch?v=A0W0ZRYe8R0]
+%[https://www.youtube.com/watch?v=A0W0ZRYe8R0] 
+
+On May 1, 2023, at 9:05 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1653022710451298304] 
+
+On May 2, 2023, at 9:01 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1653384319099101184] 
+
+On May 3, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1653746414634295296] 
+
+On May 4, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1654109169497296901] 
+
+On May 5, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1654471228575617027] 
+
+On May 6, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1654833397192114178] 
+
+On May 1, 2023, at 9 AM EST, Modhaus releases\*\*  
+"Busan Night Sea | Explore Log Ep. 3\*\*" Starts being filmed at Ananti Cove, Busan on April 17th, 2023
+
+%[https://twitter.com/official_artms/status/1655195788065247233] 
+
+%[https://www.youtube.com/watch?v=Ri6jL46E1cE] 
+
+On May 8, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1655558166849937409] 
+
+On May 9, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1655920558310031360] 
+
+On May 10, 2023, at 9:04 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1656284176793079809] 
+
+On May 11, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1656645341452861440] 
+
+On May 12, 2023, at 9:03 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1657008473018597378] 
+
+On May 13, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1657370106366951425] 
+
+On May 14, 2023, at 9 AM EST, Modhaus releases\*\*  
+"Taste of Busan Final Episode｜Explore Log Ep. 4" Starts being\*\* filmed at Ananti Cove, Busan on April 18th, 2023
+
+%[https://twitter.com/official_artms/status/1657732497055129600] 
+
+%[https://www.youtube.com/watch?v=8FL-qKVo8MY] 
+
+On May 15, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1658094892331958276] 
+
+On May 16, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1658457271071019011] 
+
+On May 17, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1658819670789505025] 
+
+On May 18, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1659182051260792832] 
+
+On May 19, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1659544432511680513] 
+
+On May 20, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+%[https://twitter.com/official_artms/status/1659906828040544260] 
+
+On May 21, 2023 at 9 AM EST, Modhaus releases \*\*"I JinSoul and E Choerry's Seoul Date｜Explore Log Ep. 5"\*\* Starts being filmed at Seongsu Cafe Street on May 5th, 2023
+
+%[https://twitter.com/official_artms/status/1660269209891356672] 
+
+%[https://www.youtube.com/watch?v=TmbQGJEhdJ4] 
+
+On May 22, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+On May 1, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
+
+On May 1, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
