@@ -409,17 +409,14 @@ On June 19, 2023 at 9:02 AM EST, Modhaus releases **"**[ARTMS ; HeeJin.objekt](h
 
 %[https://www.youtube.com/watch?v=_FWBOY4XrCA] 
 
-  
 On June 19, 2023, at 10 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1670793566564802560] 
 
-  
 On June 19, 2023, at 11 AM EST, Modhaus releases information about the ODD EYE CIRCLE, Volume Up in Europe Tour, with dates of 2023.08.05 - London, 2023.08.07 - Berlin, 2023.08.09 - Warsaw, and 2023.08.11 - Paris
 
 %[https://twitter.com/official_artms/status/1670808657808838656] 
 
-  
 On June 20, 2023, at 7 AM EST, Modhaus releases information about the ARTMS Kim Lip Atom01 First Class First Edition Photo Cards which had a release time of June 20, 2023, at 9 AM EST
 
 %[https://twitter.com/official_artms/status/1671110649982713860] 
@@ -430,9 +427,55 @@ On June 19, 2023 at 9 AM EST, Modhaus releases **"**[ARTMS ; Kim Lip.object](htt
 
 %[https://www.youtube.com/watch?v=ucLSO0x6MXA] 
 
-  
 On June 20, 2023, at 10 AM EST, Modhaus announces they have signed Haseul with an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1671155947065024512] 
 
-On June 21, 2023, NME Releases an Article Going over
+[On June 21, 2023, Modhaus releases a statement to Naver about their exclusive contract with Haseul](https://hashnode.com/edit/cljydnmn1000009l00laq2o6r)
+
+%[https://entertain.naver.com/now/read?oid=241&aid=0003282972] 
+
+[NME corroborates on June 21, 2023, for English-speaking audiences here](https://www.nme.com/news/music/loona-haseul-signs-modhaus-contract-joins-artms-project-3458662)
+
+%[https://www.nme.com/news/music/loona-haseul-signs-modhaus-contract-joins-artms-project-3458662] 
+
+  
+On June 20, 2023, Modhaus retweets the tour announcement tweet from MyMusicTaste
+
+%[https://twitter.com/_mymusictaste/status/1671171253661757445] 
+
+On June 21, 2023, Modhaus retweets the announcement of Heejin on a KODE video to be released on June 22, 2023.
+
+%[https://twitter.com/findyourKODE/status/1671450386228719616] 
+
+On June 21, 2023, at 7 AM EST, Modhaus releases information about the ARTMS JinSoul Atom01 First Class First Edition Photo Cards which had a release time of June 21, 2023, at 9 AM EST
+
+%[https://twitter.com/official_artms/status/1671473036447424512] 
+
+On June 21, 2023 at 9:01 AM EST, Modhaus releases **"**[ARTMS ; JinSoul.object](https://www.youtube.com/watch?v=hs55L390Mt8) **"** JinSoul's first set of Objekts has been released on the COSMO app. JinSoul announces the release of her Objekts as the third member of ARTMS. She expresses curiosity about the identity of the 613th person to join. JinSoul promises to share more content with her audience. She requests her fans to look forward to the upcoming content. JinSoul asks for active support from her followers.
+
+%[https://twitter.com/official_artms/status/1671503531860426754] 
+
+%[https://www.youtube.com/watch?v=hs55L390Mt8] 
+
+  
+
+On June 21, 2023, at 10 AM EST, Modhaus releases an ARTMS Shortcut
+
+%[https://twitter.com/official_artms/status/1671518339116462082] 
+
+On June 22, 2023, Modhaus retweets Kode's announcement of "**SF9 Dawon&ARTMS Heejin \[CellphoneKODE\]"**
+
+%[https://twitter.com/findyourKODE/status/1671812771879559168] 
+
+%[https://www.youtube.com/watch?v=AIs2MdO8vLU&feature=youtu.be] 
+
+On June 22, 2023, at 7 AM EST, Modhaus releases information about the ARTMS Choerry Atom01 First Class First Edition Photo Cards which had a release time of June 22, 2023, at 9 AM EST
+
+%[https://twitter.com/official_artms/status/1671835422400413701] 
+
+On June 31, 2023 at 9:01 AM EST, Modhaus releases **"**[ARTMS ; JinSoul.object](https://www.youtube.com/watch?v=pa0_v3hjTp8) **"** Choerry's first set of Objekts has been released on the COSMO app. Choerry announces the release of her first set of Objekts through the COSMO app.She intends to showcase different aspects of herself through these Objekts. Choerry asks for active support and love from her fans. This marks an important milestone for Choerry. The message ends with Choerry bidding farewell.
+
+%[https://twitter.com/official_artms/status/1671866217861357569] 
+
+%[https://www.youtube.com/watch?v=pa0_v3hjTp8]
