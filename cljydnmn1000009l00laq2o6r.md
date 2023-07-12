@@ -439,7 +439,6 @@ On June 20, 2023, at 10 AM EST, Modhaus announces they have signed Haseul with a
 
 %[https://www.nme.com/news/music/loona-haseul-signs-modhaus-contract-joins-artms-project-3458662] 
 
-  
 On June 20, 2023, Modhaus retweets the tour announcement tweet from MyMusicTaste
 
 %[https://twitter.com/_mymusictaste/status/1671171253661757445] 
@@ -458,8 +457,6 @@ On June 21, 2023 at 9:01 AM EST, Modhaus releases **"**[ARTMS ; JinSoul.object](
 
 %[https://www.youtube.com/watch?v=hs55L390Mt8] 
 
-  
-
 On June 21, 2023, at 10 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1671518339116462082] 
@@ -474,8 +471,80 @@ On June 22, 2023, at 7 AM EST, Modhaus releases information about the ARTMS Choe
 
 %[https://twitter.com/official_artms/status/1671835422400413701] 
 
-On June 31, 2023 at 9:01 AM EST, Modhaus releases **"**[ARTMS ; JinSoul.object](https://www.youtube.com/watch?v=pa0_v3hjTp8) **"** Choerry's first set of Objekts has been released on the COSMO app. Choerry announces the release of her first set of Objekts through the COSMO app.She intends to showcase different aspects of herself through these Objekts. Choerry asks for active support and love from her fans. This marks an important milestone for Choerry. The message ends with Choerry bidding farewell.
+On June 22, 2023 at 9:01 AM EST, Modhaus releases **"**[ARTMS ; Choerry.object](https://www.youtube.com/watch?v=pa0_v3hjTp8) **"** Choerry's first set of Objekts has been released on the COSMO app. Choerry announces the release of her first set of Objekts through the COSMO app.She intends to showcase different aspects of herself through these Objekts. Choerry asks for active support and love from her fans. This marks an important milestone for Choerry. The message ends with Choerry bidding farewell.
 
 %[https://twitter.com/official_artms/status/1671866217861357569] 
 
-%[https://www.youtube.com/watch?v=pa0_v3hjTp8]
+%[https://www.youtube.com/watch?v=pa0_v3hjTp8] 
+
+On June 22 2023, at 10 AM EST, Modhaus releases an ARTMS Shortcut
+
+%[https://twitter.com/official_artms/status/1671880742228619264] 
+
+  
+On June 23, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
+
+%[https://twitter.com/official_artms/status/1672228017572294656] 
+
+  
+On June 24, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
+
+%[https://twitter.com/official_artms/status/1672590402564784129] 
+
+On June 25, 2023, at 9 AM EST, Modhaus releases **"Good(?) Outfits for Playing Badminton｜Explore Log Ep. 8"** Starts being filmed at Seongsu-Dong Cafe Street on May 26, 2023, They leave Seongsu to go play badminton at a badminton court.
+
+%[https://twitter.com/official_artms/status/1672952785619361792] 
+
+%[https://www.youtube.com/watch?v=6T3-6ntj3b4] 
+
+On June 25, 2023, at 11 AM EST, Modhaus releases a teaser for ODD EYE CIRCLE &lt;Version Up&gt; Kim Lip, JinSoul, Choerry
+
+%[https://twitter.com/official_artms/status/1672982991566520322] 
+
+On June 26, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
+
+%[https://twitter.com/official_artms/status/1673315172117561344] 
+
+On June 27, 2023, Modhaus retweets MyMusicTaste tweet going over 2023 ODD EYE CIRCLE &lt;VOLUME UP&gt; Concert Information
+
+%[https://twitter.com/_mymusictaste/status/1673621689341739008] 
+
+On June 27, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
+
+%[https://twitter.com/official_artms/status/1673677564173484032] 
+
+On June 27, 2023, at 11 AM EST, Modhaus releases a teaser for ODD EYE CIRCLE &lt;Version Up&gt; Kim Lip, JinSoul, Choerry
+
+%[https://twitter.com/official_artms/status/1673707764923678720] 
+
+  
+On June 27, 2023, Modhaus retweets 1stlookofficials announcement of Heejin in their magazine
+
+%[https://twitter.com/1stlookofficial/status/1673860483412262912] 
+
+On June 28, 2023, Modhaus releases where to get the new ODD EYE CIRCLE album &lt;Version Up&gt;
+
+%[https://twitter.com/official_artms/status/1673938216217645057] 
+
+  
+On June 28, 2023, Modhaus retweets DearMyMuse's announcement of their sale of the Album, they are giving you another digital photo card with their sale of the album
+
+%[https://twitter.com/dearmymuse_foru/status/1673934258610610177] 
+
+On June 28, 2023, Modhaus retweets DearMyMuse's announcement of Showcase Event for ODD EYE CIRCLE
+
+%[https://twitter.com/dearmymuse_foru/status/1673949351641595904] 
+
+On June 28, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
+
+%[https://twitter.com/official_artms/status/1674039951996993536] 
+
+On June 28, 2023, at 11:05 AM EST, Modhaus releases a YouTube video teaser for &lt;Version Up&gt;
+
+%[https://twitter.com/official_artms/status/1674071654346162176] 
+
+%[https://www.youtube.com/watch?v=PFQ7wjlz9Zs] 
+
+On June 28, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
+
+%[https://twitter.com/official_artms/status/1674402335089459200]
