@@ -444,7 +444,6 @@ On June 20, 2023, Modhaus retweets the tour announcement tweet from MyMusicTaste
 %[https://twitter.com/_mymusictaste/status/1671171253661757445] 
 
 On June 21, 2023, Modhaus retweets the announcement of Heejin on a KODE video to be released on June 22, 2023.
-
 %[https://twitter.com/findyourKODE/status/1671450386228719616] 
 
 On June 21, 2023, at 7 AM EST, Modhaus releases information about the ARTMS JinSoul Atom01 First Class First Edition Photo Cards which had a release time of June 21, 2023, at 9 AM EST
@@ -498,37 +497,28 @@ On June 25, 2023, at 9 AM EST, Modhaus releases **"Good(?) Outfits for Playing B
 %[https://www.youtube.com/watch?v=6T3-6ntj3b4] 
 
 On June 25, 2023, at 11 AM EST, Modhaus releases a teaser for ODD EYE CIRCLE &lt;Version Up&gt; Kim Lip, JinSoul, Choerry
-
 %[https://twitter.com/official_artms/status/1672982991566520322] 
 
 On June 26, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
-
 %[https://twitter.com/official_artms/status/1673315172117561344] 
 
 On June 27, 2023, Modhaus retweets MyMusicTaste tweet going over 2023 ODD EYE CIRCLE &lt;VOLUME UP&gt; Concert Information
-
 %[https://twitter.com/_mymusictaste/status/1673621689341739008] 
 
 On June 27, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
-
 %[https://twitter.com/official_artms/status/1673677564173484032] 
 
 On June 27, 2023, at 11 AM EST, Modhaus releases a teaser for ODD EYE CIRCLE &lt;Version Up&gt; Kim Lip, JinSoul, Choerry
-
 %[https://twitter.com/official_artms/status/1673707764923678720] 
 
   
 On June 27, 2023, Modhaus retweets 1stlookofficials announcement of Heejin in their magazine
-
 %[https://twitter.com/1stlookofficial/status/1673860483412262912] 
 
 On June 28, 2023, Modhaus releases where to get the new ODD EYE CIRCLE album &lt;Version Up&gt;
-
 %[https://twitter.com/official_artms/status/1673938216217645057] 
 
-  
 On June 28, 2023, Modhaus retweets DearMyMuse's announcement of their sale of the Album, they are giving you another digital photo card with their sale of the album
-
 %[https://twitter.com/dearmymuse_foru/status/1673934258610610177] 
 
 On June 28, 2023, Modhaus retweets DearMyMuse's announcement of Showcase Event for ODD EYE CIRCLE
@@ -536,15 +526,118 @@ On June 28, 2023, Modhaus retweets DearMyMuse's announcement of Showcase Event f
 %[https://twitter.com/dearmymuse_foru/status/1673949351641595904] 
 
 On June 28, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
-
 %[https://twitter.com/official_artms/status/1674039951996993536] 
 
 On June 28, 2023, at 11:05 AM EST, Modhaus releases a YouTube video teaser for &lt;Version Up&gt;
-
 %[https://twitter.com/official_artms/status/1674071654346162176] 
-
 %[https://www.youtube.com/watch?v=PFQ7wjlz9Zs] 
 
-On June 28, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
-
+On June 29, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
 %[https://twitter.com/official_artms/status/1674402335089459200]
+
+On June 30, 2023, at 9:01 AM EST, Modhaus releases an ARTMS Shortcut
+%[https://twitter.com/official_artms/status/1674765115365937152]
+On June 30, 2023, Modhaus retweets MyMusicTaste's tweet about <Volume Up> Tickets being available for sale
+%[https://twitter.com/_mymusictaste/status/1674794691068567552]
+
+# The month of July 2023
+On July 1, 2023, at 9:02 AM EST, Modhaus releases an ARTMS Shortcut
+%[https://twitter.com/official_artms/status/1675127698962935809]
+On July 2, 2023, at 9:01 AM EST, Modhaus releases **"Until She Becomes a Challenge Master | Explore Log Ep. 9"** Starts being filmed at Apgujeong, on June 20th, 2023
+%[https://twitter.com/official_artms/status/1675489774432559104]
+%[https://www.youtube.com/watch?v=nQ28HAp9Dfc]
+On July 2, 2023, at 11 AM EST, Modhaus releases another teaser showing when the <Version Up> will be released.
+%[https://twitter.com/official_artms/status/1675519698828673024]
+On July 2, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE <Version Up> Showcase Event
+%[https://twitter.com/dearmymuse_foru/status/1675700916400586752]
+On July 3, 2023, Modhaus announces the ARTMS: First Class digital photocards, First Edition, Grid Release, release date on Cosmo: The Gate
+%[https://twitter.com/official_artms/status/1675821695158894592]
+On July 3, 2023, at 9:02 AM EST, Modhaus releases an ARTMS Shortcut
+%[https://twitter.com/official_artms/status/1675852610237255680]
+On July 3, 2023, at 11 AM EST, Modhaus releases the Music Video teaser for "Air Force One"
+%[https://twitter.com/official_artms/status/1675852610237255680]
+%[https://www.youtube.com/watch?v=FKo0tjVeAEU]
+
+On June 4, 2023, at 7 AM EST, Modhaus releases information about the ARTMS HaSeul Atom01 First Class First Edition Photo Cards which had a release time of June 5, 2023, at 7 AM EST
+%[https://twitter.com/official_artms/status/1676184086304415744] 
+On July 4, 2023, at 9:01 AM EST, Modhaus releases an ARTMS Shortcut
+%[https://twitter.com/official_artms/status/1676214587308531712]
+On July 4, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE <Volume Up> Meet and Greet being for sale
+%[https://twitter.com/_mymusictaste/status/1676244265293475841]
+
+On July 5, 2023 at 7 AM EST, Modhaus releases **"**[ARTMS ; Haseul.object](https://www.youtube.com/watch?v=cRPg1JLYHzM) **"** 
+HaSeul announces the release of her first object through the Cosmo app. She promises to showcase a diverse and beautiful collection of objects in the future. HaSeul expresses her gratitude and asks everyone to look forward to it with excitement. The object release is a significant milestone for HaSeul. She thanks her fans for their support.
+
+On July 5, 2023, at 9:02 AM EST, Modhaus releases an ARTMS short
+%[https://twitter.com/official_artms/status/1676577398136127490]
+
+On July 5, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE <Volume Up> ARTMS are inviting you to join them for their 2023 ODD EYE CIRCLE <VOLUME UP> in LONDON🇬🇧
+%[https://twitter.com/_mymusictaste/status/1676577049518170112]
+
+On July 5, 2023, at 11 AM EST, Modhaus releases the <Version Up> Track List
+%[https://twitter.com/official_artms/status/1676606864182898688]
+
+On July 6, 2023, at 3 AM EST , Modhaus announces the ARTMS : HaSeul First Class Objekt First Edition, Grid Release, to be released on 2023.07.06 8:00 EST on Cosmo: The Gate
+%[https://twitter.com/official_artms/status/1676848455862583296]
+
+On July 6, 2023, at 9 AM EST, Modhaus releases an ARTMS short
+%[https://twitter.com/official_artms/status/1676939215622541313]
+
+On July 6, 2023, at 11 AM EST, Modhaus releases
+%[https://twitter.com/official_artms/status/1676969346097364993]
+On July 6, 2023, at 11 AM EST, Modhaus releases
+%[https://twitter.com/official_artms/status/1676969412853927942]
+On July 6, 2023, at 11 AM EST, Modhaus releases
+%[https://twitter.com/official_artms/status/1676969488586268672]
+On July 6, 2023, at 11 AM EST, Modhaus releases
+%[https://twitter.com/official_artms/status/1676969574087168002]
+On July 6, 2023, at 11 AM EST, Modhaus releases
+%[https://twitter.com/official_artms/status/1676969608748871681]
+
+On July 6, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE <Volume Up> Meet and Greet being for sale
+%[https://twitter.com/_mymusictaste/status/1676968997282013184]
+On July 7, 2023, at 9 AM EST, Modhaus releases an ARTMS short
+%[https://twitter.com/official_artms/status/1677301473783451650]
+On July 7, 2023, at 9:02 EST, Modhaus releases a video on the tripleS channel. ARTMS members, HeeJin, Kim Lip, and Choerry, advise tripleS SeoYeon and JiWoo of the group +(KR)ystal Eyes during a counseling session for Queendom Puzzle.
+SeoYeon and JiWoo have been extremely busy with preparations for +(KR)ystal Eyes activities and participating in Queendom Puzzle. They have filmed a music video, performed at a university festival, and had a packed schedule with no rest for almost a month. SeoYeon and JiWoo express concerns about their inexperience and being the youngest among the contestants. The seniors encourage them to believe in themselves, not underestimate their abilities, and enjoy the process.
+%[https://www.youtube.com/watch?v=HueewDtH400]
+
+On July 7, 2023, Modhaus retweets the tour announcement tweet from MyMusicTaste for the Berlin Show
+%[https://twitter.com/_mymusictaste/status/1677302067743035395]
+
+On July 8, 2023, at 9 :03AM EST, Modhaus releases an ARTMS short
+%[https://twitter.com/official_artms/status/1677664596453396481]
+
+On July 8, 2023, at 11 AM EST, Modhaus releases the Highlight Melody
+%[https://twitter.com/official_artms/status/1677694037971832832]
+
+On July 9, 2023, at 9 AM EST, Modhaus releases **"Is This It? by HeeJin | Explore Log Ep. 10"** Started being filmed at Apgujeong, on June 20th, 2023
+%[https://twitter.com/official_artms/status/1678026223203782664]
+%[https://www.youtube.com/watch?v=9hF6-_te-hw]
+
+On July 9, 2023, Modhaus retweets the tour announcement tweet from MyMusicTaste for the Warsaw Show
+%[https://twitter.com/_mymusictaste/status/1678027916192645120]
+
+On July 9, 2023, at 9 AM EST, Modhaus releases **Special puppy Haseul's cafe event! BEHIND"** HaSeul prepared a café event for her fans, personally decorating the space. The event involved taking photos with fans and preparing various items such as photo cards, keychains, fan meetings, and posters. The original plan was to open the café on the 6th anniversary of her debut but was postponed due to timing issues. HaSeul expressed gratitude towards her fans and wanted them to feel her love through the café event. The café event concluded successfully, and HaSeul also held a signing event for the fans.
+%[https://twitter.com/official_artms/status/1678389113601523715]
+%[https://www.youtube.com/watch?v=ZMCfq1YCb8Y]
+
+On July 10, 2023, at 11 AM EST, Modhaus releases 𝐎𝐃𝐃 𝐄𝐘𝐄 𝐂𝐈𝐑𝐂𝐋𝐄 <𝐕𝐞𝐫𝐬𝐢𝐨𝐧 𝐔𝐩>
+𝐃-𝟏 tweet
+%[https://twitter.com/official_artms/status/1678418892744450048]
+%[https://twitter.com/official_artms/status/1678418937812246529]
+%[https://twitter.com/official_artms/status/1678419085086937095]
+
+On July 10, 2023 Modhaus retweets, Teen Vogues Article on "Culture
+After LOONA Legal Battles, Kim Lip, JinSoul, and Choerry Kickoff ARTMS Collective With New Odd Eye Circle Album"
+In 2017, LOONA's sub-unit Odd Eye Circle, consisting of Kim Lip, JinSoul, and Choerry, released music that contributed to LOONA's success. Recently, all 12 members of LOONA left their previous management company amid contract disputes and lawsuits, signaling an end to the group as it was known. Odd Eye Circle, along with other former LOONA members, reunited with LOONA's early-stage creative producer Jaden Jeong at his label Modhaus, under the new brand ARTMS, with the aim of continuing LOONA's legacy. Odd Eye Circle released their second album, Version Up, with the anticipation of a brighter future for the group. The members of Odd Eye Circle reflect on their journey, their growth as artists, and their excitement about reuniting under the guidance of Jaden Jeong. They strive to showcase their mature side and different charms through music while maintaining their roots.
+%[https://twitter.com/TeenVogue/status/1678568081575104518]
+%[https://www.teenvogue.com/story/loona-kim-lip-jinsoul-choerry-kickoff-artms-collective-new-odd-eye-circle-album-interview?utm_source=twitter&utm_medium=social&utm_social-type=owned&mbid=social_twitter&utm_brand=tv]
+
+On July 11, 2023, at 5:18 AM EST, Modhaus Releases
+%[https://twitter.com/official_artms/status/1678695162602729473]
+
+On July 11, 2023, at 11 AM EST, Modhaus releases the premiere for ODD EYE CIRCLE "Air Force One" Music Video
+%[https://twitter.com/official_artms/status/1678781199282585600]
+%[https://www.youtube.com/watch?v=UDxID0_A9x4]
+
