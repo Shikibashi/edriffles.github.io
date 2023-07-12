@@ -259,32 +259,26 @@ On May 26, 2023, at 9 AM EST, Modhaus releases an ARTMS shortcut
 
 %[https://twitter.com/official_artms/status/1662081150351970304] 
 
-  
 On May 27, 2023, at 9 AM EST, Modhaus releases an ARTMS shortcut
 
 %[https://twitter.com/official_artms/status/1662443542579404801] 
 
-  
 On May 28, 2023, at 9 AM EST, Modhaus releases an ARTMS shortcut
 
 %[https://twitter.com/official_artms/status/1662805929157611520] 
 
-  
 On May 29, 2023, at 12:06 AM EST, Modhaus releases a TikTok featuring tripleS SeoYeon and Heejin because Seoyeon is participating in Queendom Puzzle alongside other tripleS member Jiwoo
 
 %[https://twitter.com/triplescosmos/status/1663033999978287105] 
 
-  
 On May 29, 2023, at 9 AM EST, Modhaus releases an ARTMS shortcut
 
 %[https://twitter.com/official_artms/status/1663168313596297217] 
 
-  
 On May 30, 2023, at 9 AM EST, Modhaus releases an ARTMS shortcut
 
 %[https://twitter.com/official_artms/status/1663530706893406208] 
 
-  
 On May 31, 2023, at 8:38 AM EST, Modhaus releases information about their welcome class digital photo cards
 
 %[https://twitter.com/official_artms/status/1663887704990560256] 
@@ -331,22 +325,18 @@ On June 6, 2023, at 9:15 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1666071383678517250] 
 
-  
 On June 7, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1666429817124732929] 
 
-  
 On June 8, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1666792199768653829] 
 
-  
 On June 9, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1667154859546783745] 
 
-  
 On June 10, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1667516973737967620] 
@@ -367,7 +357,6 @@ On June 12, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1668241751059107845] 
 
-  
 On June 13, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1668604132515811329] 
@@ -376,7 +365,6 @@ On June 14, 2023, at 10 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1668981665627004929] 
 
-  
 On June 14, 2023, at 11 AM EST, Modhaus releases a teaser for ODD EYE CIRCLE &lt;Version Up&gt; Jinsoul
 
 %[https://twitter.com/official_artms/status/1668996805118369794] 
@@ -385,7 +373,6 @@ On June 15, 2023, at 11 AM EST, Modhaus releases a teaser for ODD EYE CIRCLE &lt
 
 %[https://twitter.com/official_artms/status/1669359198222819333] 
 
-  
 On June 15, 2023, at 11 AM EST, Modhaus releases a teaser for ODD EYE CIRCLE &lt;Version Up&gt; Kim Lip
 
 %[https://twitter.com/official_artms/status/1669721584922398722] 
@@ -394,6 +381,58 @@ On June 17, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1670053685664120835] 
 
+On June 18, 2023 at 9 AM EST, Modhaus releases **"HeeJin and Kim Lip's Summer Date｜탐험일지 7화"** Starts being filmed at Seongsu-Dong Cafe Street on May 26, 2023
+
 %[https://twitter.com/official_artms/status/1670416078403674112] 
 
-%[https://www.youtube.com/watch?v=jMEz-H4B_XI]
+%[https://www.youtube.com/watch?v=jMEz-H4B_XI] 
+
+On June 18, 2023, at 10 PM EST, Modhaus releases information about their photocards app Cosmo: the Gate 2.0 Version Update, which had the following event to get ARTMS Heejin and tripleS SeoYeon Double Class photocards for free from June 19, 2023, 10 PM EST to July 03, 2023, 10:59 PM EST
+
+%[https://twitter.com/official_artms/status/1670612392173248514] 
+
+On June 18, 2023, at 10:04 PM EST, Modhaus releases information about the ARTMS Welcome Class Photo Cards Guide
+
+%[https://twitter.com/official_artms/status/1670613442607337472] 
+
+On June 19, 2023, at 12 AM EST, Modhaus releases information about the ARTMS First Class First Edition Photo Cards release schedule
+
+%[https://twitter.com/official_artms/status/1670642562858881025] 
+
+On June 19, 2023, at 7 AM EST, Modhaus releases information about the ARTMS Heejin Atom01 First Class First Edition Photo Cards which had a release time of June 19, 2023, at 9 AM EST
+
+%[https://twitter.com/official_artms/status/1670748262566076421] 
+
+On June 19, 2023 at 9:02 AM EST, Modhaus releases **"**[ARTMS ; HeeJin.objekt](https://www.youtube.com/watch?v=_FWBOY4XrCA) **"** HeeJin's first set of Objekts has been released on the COSMO app. She is pleased with how her photos turned out during the photoshoot. HeeJin believes that others will also enjoy her first set of Objekts. She encourages viewers to look forward to her work and show their support. HeeJin concludes by saying goodbye and requesting love from her audience.
+
+%[https://twitter.com/official_artms/status/1670778976812535810] 
+
+%[https://www.youtube.com/watch?v=_FWBOY4XrCA] 
+
+  
+On June 19, 2023, at 10 AM EST, Modhaus releases an ARTMS Shortcut
+
+%[https://twitter.com/official_artms/status/1670793566564802560] 
+
+  
+On June 19, 2023, at 11 AM EST, Modhaus releases information about the ODD EYE CIRCLE, Volume Up in Europe Tour, with dates of 2023.08.05 - London, 2023.08.07 - Berlin, 2023.08.09 - Warsaw, and 2023.08.11 - Paris
+
+%[https://twitter.com/official_artms/status/1670808657808838656] 
+
+  
+On June 20, 2023, at 7 AM EST, Modhaus releases information about the ARTMS Kim Lip Atom01 First Class First Edition Photo Cards which had a release time of June 20, 2023, at 9 AM EST
+
+%[https://twitter.com/official_artms/status/1671110649982713860] 
+
+On June 19, 2023 at 9 AM EST, Modhaus releases **"**[ARTMS ; Kim Lip.object](https://www.youtube.com/watch?v=ucLSO0x6MXA) **"** Kim Lip's first set of Objekts has been released on the COSMO app. Kim Lip announces the release of her first set of Objekts on the COSMO app. She expresses excitement and mentions that she had a great time shooting for the Objekts. Kim Lip requests active support from her fans. The Objekts are available for viewing or purchase on the COSMO app. Kim Lip expresses gratitude for the support received.
+
+%[https://twitter.com/official_artms/status/1671141092916596738] 
+
+%[https://www.youtube.com/watch?v=ucLSO0x6MXA] 
+
+  
+On June 20, 2023, at 10 AM EST, Modhaus announces they have signed Haseul with an ARTMS Shortcut
+
+%[https://twitter.com/official_artms/status/1671155947065024512] 
+
+On June 21, 2023, NME Releases an Article Going over
