@@ -586,13 +586,11 @@ On July 3, 2023, at 9:02 AM EST, Modhaus releases an ARTMS Shortcut
 
 On July 3, 2023, at 11 AM EST, Modhaus releases the Music Video teaser for "Air Force One" 
 
-%[https://twitter.com/official_artms/status/1675852610237255680]
-
 
 %[https://www.youtube.com/watch?v=FKo0tjVeAEU]
 
 
-On June 4, 2023, at 7 AM EST, Modhaus releases information about the ARTMS HaSeul Atom01 First Class First Edition Photo Cards which had a release time of June 5, 2023, at 7 AM EST
+On July 4, 2023, at 7 AM EST, Modhaus releases information about the ARTMS HaSeul Atom01 First Class First Edition Photo Cards which had a release time of June 5, 2023, at 7 AM EST
 
 %[https://twitter.com/official_artms/status/1676184086304415744] 
 
@@ -674,7 +672,7 @@ On July 9, 2023, Modhaus retweets the tour announcement tweet from MyMusicTaste 
 
 %[https://twitter.com/_mymusictaste/status/1678027916192645120] 
 
-On July 9, 2023, at 9 AM EST, Modhaus releases **Special puppy Haseul's cafe event! BEHIND"** HaSeul prepared a café event for her fans, personally decorating the space. The event involved taking photos with fans and preparing various items such as photo cards, keychains, fan meetings, and posters. The original plan was to open the café on the 6th anniversary of her debut but was postponed due to timing issues. HaSeul expressed gratitude towards her fans and wanted them to feel her love through the café event. The café event concluded successfully, and HaSeul also held a signing event for the fans.
+On July 9, 2023, at 9 AM EST, Modhaus releases **Special puppy Haseul's cafe event! BEHIND"** The video was filmed on June 22, 2023 HaSeul prepared a café event for her fans, personally decorating the space. The event involved taking photos with fans and preparing various items such as photo cards, keychains, fan meetings, and posters. The original plan was to open the café on the 6th anniversary of her debut but was postponed due to timing issues. HaSeul expressed gratitude towards her fans and wanted them to feel her love through the café event. The café event concluded successfully, and HaSeul also held a signing event for the fans.
 
 %[https://twitter.com/official_artms/status/1678389113601523715] 
 
