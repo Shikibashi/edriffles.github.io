@@ -563,7 +563,18 @@ On July 3, 2023, at 9:02 AM EST, Modhaus releases an ARTMS Shortcut %[https://tw
 
 On July 3, 2023, at 11 AM EST, Modhaus releases the Music Video teaser for "Air Force One" %[https://twitter.com/official_artms/status/1675852610237255680] %[https://www.youtube.com/watch?v=FKo0tjVeAEU]
 
-On June 4, 2023, at 7 AM EST, Modhaus releases information about the ARTMS HaSeul Atom01 First Class First Edition Photo Cards which had a release time of June 5, 2023, at 7 AM EST %[https://twitter.com/official_artms/status/1676184086304415744] On July 4, 2023, at 9:01 AM EST, Modhaus releases an ARTMS Shortcut %[https://twitter.com/official_artms/status/1676214587308531712] On July 4, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE Meet and Greet being for sale %[https://twitter.com/_mymusictaste/status/1676244265293475841]
+On June 4, 2023, at 7 AM EST, Modhaus releases information about the ARTMS HaSeul Atom01 First Class First Edition Photo Cards which had a release time of June 5, 2023, at 7 AM EST
+
+%[https://twitter.com/official_artms/status/1676184086304415744] 
+
+On July 4, 2023, at 9:01 AM EST, Modhaus releases an ARTMS Shortcut
+
+%[https://twitter.com/official_artms/status/1676214587308531712] 
+
+
+On July 4, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE Meet and Greet being for sale
+
+%[https://twitter.com/_mymusictaste/status/1676244265293475841]
 
 On July 5, 2023 at 7 AM EST, Modhaus releases **"**[ARTMS ; Haseul.object](https://www.youtube.com/watch?v=cRPg1JLYHzM) **"** HaSeul announces the release of her first object through the Cosmo app. She promises to showcase a diverse and beautiful collection of objects in the future. HaSeul expresses her gratitude and asks everyone to look forward to it with excitement. The object release is a significant milestone for HaSeul. She thanks her fans for their support.
 
