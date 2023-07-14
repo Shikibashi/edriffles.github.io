@@ -309,7 +309,7 @@ On June 4, 2023, at 12 AM EST, Modhaus releases a Choerry Youtube Live
 
 %[https://www.youtube.com/watch?v=QlB_maw5AtU&t=684s] 
 
-On June 4, 2023, at 12 AM EST, Modhaus releases "**Disney Land VLOG of Someone Who Can't Go On Rides | KimLip Vlog"** Starts being filmed on a flight to Tokyo on May 5th, 2023
+On June 4, 2023, at 12 AM EST, Modhaus releases "**Disney Land VLOG of Someone Who Can't Go On Rides | KimLip Vlog**" Starts being filmed on a flight to Tokyo on May 5th, 2023
 
 %[https://twitter.com/official_artms/status/1665342640014135296] 
 
