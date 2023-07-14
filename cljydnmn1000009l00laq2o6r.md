@@ -605,15 +605,23 @@ On July 4, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE 
 
 On July 5, 2023 at 7 AM EST, Modhaus releases **"**[ARTMS ; Haseul.object](https://www.youtube.com/watch?v=cRPg1JLYHzM) **"** HaSeul announces the release of her first object through the Cosmo app. She promises to showcase a diverse and beautiful collection of objects in the future. HaSeul expresses her gratitude and asks everyone to look forward to it with excitement. The object release is a significant milestone for HaSeul. She thanks her fans for their support.
 
+%[https://twitter.com/official_artms/status/1676546610791354369]
+
+
 On July 5, 2023, at 9:02 AM EST, Modhaus releases an ARTMS short
+
 
 %[https://twitter.com/official_artms/status/1676577398136127490] 
 
+
 On July 5, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE ARTMS are inviting you to join them for their 2023 ODD EYE CIRCLE in LONDON🇬🇧 %[https://twitter.com/_mymusictaste/status/1676577049518170112]
+
 
 On July 5, 2023, at 11 AM EST, Modhaus releases the Track List
 
+
 %[https://twitter.com/official_artms/status/1676606864182898688] 
+
 
 On July 6, 2023, at 3 AM EST , Modhaus announces the ARTMS : HaSeul First Class Objekt First Edition, Grid Release, to be released on 2023.07.06 8:00 EST on Cosmo: The Gate
 
