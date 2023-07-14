@@ -547,21 +547,50 @@ On June 30, 2023, Modhaus retweets MyMusicTaste's tweet about Tickets being avai
 
 # The month of July 2023
 
+
 On July 1, 2023, at 9:02 AM EST, Modhaus releases an ARTMS Shortcut
+
 
 %[https://twitter.com/official_artms/status/1675127698962935809] 
 
-On July 2, 2023, at 9:01 AM EST, Modhaus releases **"Until She Becomes a Challenge Master | Explore Log Ep. 9"** Starts being filmed at Apgujeong, on June 20th, 2023 %[https://twitter.com/official_artms/status/1675489774432559104] %[https://www.youtube.com/watch?v=nQ28HAp9Dfc]
 
-On July 2, 2023, at 11 AM EST, Modhaus releases another teaser showing when the will be released. %[https://twitter.com/official_artms/status/1675519698828673024]
+On July 2, 2023, at 9:01 AM EST, Modhaus releases **"Until She Becomes a Challenge Master | Explore Log Ep. 9"** Starts being filmed at Apgujeong, on June 20th, 2023 
 
-On July 2, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE Showcase Event %[https://twitter.com/dearmymuse_foru/status/1675700916400586752]
 
-On July 3, 2023, Modhaus announces the ARTMS: First Class digital photocards, First Edition, Grid Release, release date on Cosmo: The Gate %[https://twitter.com/official_artms/status/1675821695158894592]
+%[https://twitter.com/official_artms/status/1675489774432559104] 
 
-On July 3, 2023, at 9:02 AM EST, Modhaus releases an ARTMS Shortcut %[https://twitter.com/official_artms/status/1675852610237255680]
 
-On July 3, 2023, at 11 AM EST, Modhaus releases the Music Video teaser for "Air Force One" %[https://twitter.com/official_artms/status/1675852610237255680] %[https://www.youtube.com/watch?v=FKo0tjVeAEU]
+%[https://www.youtube.com/watch?v=nQ28HAp9Dfc]
+
+
+On July 2, 2023, at 11 AM EST, Modhaus releases another teaser showing when the will be released. 
+
+
+%[https://twitter.com/official_artms/status/1675519698828673024]
+
+
+On July 2, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE Showcase Event
+
+
+%[https://twitter.com/dearmymuse_foru/status/1675700916400586752]
+
+On July 3, 2023, Modhaus announces the ARTMS: First Class digital photocards, First Edition, Grid Release, release date on Cosmo: The Gate
+
+
+%[https://twitter.com/official_artms/status/1675821695158894592]
+
+On July 3, 2023, at 9:02 AM EST, Modhaus releases an ARTMS Shortcut
+
+
+%[https://twitter.com/official_artms/status/1675852610237255680]
+
+On July 3, 2023, at 11 AM EST, Modhaus releases the Music Video teaser for "Air Force One" 
+
+%[https://twitter.com/official_artms/status/1675852610237255680]
+
+
+%[https://www.youtube.com/watch?v=FKo0tjVeAEU]
+
 
 On June 4, 2023, at 7 AM EST, Modhaus releases information about the ARTMS HaSeul Atom01 First Class First Edition Photo Cards which had a release time of June 5, 2023, at 7 AM EST
 
@@ -635,6 +664,7 @@ On July 8, 2023, at 11 AM EST, Modhaus releases the Highlight Melody
 %[https://twitter.com/official_artms/status/1677694037971832832] 
 
 On July 9, 2023, at 9 AM EST, Modhaus releases **"Is This It? by HeeJin | Explore Log Ep. 10"** Started being filmed at Apgujeong, on June 20th, 2023
+
 
 %[https://twitter.com/official_artms/status/1678026223203782664] 
 
