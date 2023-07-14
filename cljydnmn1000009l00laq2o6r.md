@@ -200,8 +200,8 @@ On May 13, 2023, at 9 AM EST, Modhaus Releases an ARTMS shortcut
 
 %[https://twitter.com/official_artms/status/1657370106366951425] 
 
-On May 14, 2023, at 9 AM EST, Modhaus releases\*\*  
-"Taste of Busan Final Episode｜Explore Log Ep. 4" Starts being\*\* filmed at Ananti Cove, Busan on April 18th, 2023
+On May 14, 2023, at 9 AM EST, Modhaus releases**  
+"Taste of Busan Final Episode｜Explore Log Ep. 4" Starts being** filmed at Ananti Cove, Busan on April 18th, 2023
 
 %[https://twitter.com/official_artms/status/1657732497055129600] 
 
@@ -441,7 +441,7 @@ On June 20, 2023, Modhaus retweets the tour announcement tweet from MyMusicTaste
 
 %[https://twitter.com/_mymusictaste/status/1671171253661757445] 
 
-On June 21, 2023, Modhaus retweets the announcement of Heejin on a KODE video to be released on June 22, 2023. %\[https://twitter.com/findyourKODE/status/1671450386228719616\]
+On June 21, 2023, Modhaus retweets the announcement of Heejin on a KODE video to be released on June 22, 2023. %[https://twitter.com/findyourKODE/status/1671450386228719616]
 
 On June 21, 2023, at 7 AM EST, Modhaus releases information about the ARTMS JinSoul Atom01 First Class First Edition Photo Cards which had a release time of June 21, 2023, at 9 AM EST
 
@@ -457,7 +457,7 @@ On June 21, 2023, at 10 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1671518339116462082] 
 
-On June 22, 2023, Modhaus retweets Kode's announcement of "**SF9 Dawon&ARTMS Heejin \[CellphoneKODE\]"**
+On June 22, 2023, Modhaus retweets Kode's announcement of "**SF9 Dawon&ARTMS Heejin [CellphoneKODE]"**
 
 %[https://twitter.com/findyourKODE/status/1671812771879559168] 
 
@@ -491,9 +491,9 @@ On June 25, 2023, at 9 AM EST, Modhaus releases **"Good(?) Outfits for Playing B
 
 %[https://www.youtube.com/watch?v=6T3-6ntj3b4] 
 
-On June 25, 2023, at 11 AM EST, Modhaus releases a teaser for ODD EYE CIRCLE &lt;Version Up&gt; Kim Lip, JinSoul, Choerry %https://twitter.com/official\_artms/status/1672982991566520322\]
+On June 25, 2023, at 11 AM EST, Modhaus releases a teaser for ODD EYE CIRCLE &lt;Version Up&gt; Kim Lip, JinSoul, Choerry %https://twitter.com/official_artms/status/1672982991566520322]
 
-On June 26, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut %https://twitter.com/official\_artms/status/1673315172117561344\]
+On June 26, 2023, at 9 AM EST, Modhaus releases an ARTMS Shortcut %https://twitter.com/official_artms/status/1673315172117561344]
 
 On June 27, 2023, Modhaus retweets MyMusicTaste tweet going over 2023 ODD EYE CIRCLE &lt;VOLUME UP&gt; Concert Information
 
@@ -551,19 +551,19 @@ On July 1, 2023, at 9:02 AM EST, Modhaus releases an ARTMS Shortcut
 
 %[https://twitter.com/official_artms/status/1675127698962935809] 
 
-On July 2, 2023, at 9:01 AM EST, Modhaus releases **"Until She Becomes a Challenge Master | Explore Log Ep. 9"** Starts being filmed at Apgujeong, on June 20th, 2023 %\[https://twitter.com/official\_artms/status/1675489774432559104\] %\[https://www.youtube.com/watch?v=nQ28HAp9Dfc\]
+On July 2, 2023, at 9:01 AM EST, Modhaus releases **"Until She Becomes a Challenge Master | Explore Log Ep. 9"** Starts being filmed at Apgujeong, on June 20th, 2023 %[https://twitter.com/official_artms/status/1675489774432559104] %[https://www.youtube.com/watch?v=nQ28HAp9Dfc]
 
-On July 2, 2023, at 11 AM EST, Modhaus releases another teaser showing when the will be released. %\[https://twitter.com/official\_artms/status/1675519698828673024\]
+On July 2, 2023, at 11 AM EST, Modhaus releases another teaser showing when the will be released. %[https://twitter.com/official_artms/status/1675519698828673024]
 
-On July 2, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE Showcase Event %\[https://twitter.com/dearmymuse\_foru/status/1675700916400586752\]
+On July 2, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE Showcase Event %[https://twitter.com/dearmymuse_foru/status/1675700916400586752]
 
-On July 3, 2023, Modhaus announces the ARTMS: First Class digital photocards, First Edition, Grid Release, release date on Cosmo: The Gate %\[https://twitter.com/official\_artms/status/1675821695158894592\]
+On July 3, 2023, Modhaus announces the ARTMS: First Class digital photocards, First Edition, Grid Release, release date on Cosmo: The Gate %[https://twitter.com/official_artms/status/1675821695158894592]
 
-On July 3, 2023, at 9:02 AM EST, Modhaus releases an ARTMS Shortcut %\[https://twitter.com/official\_artms/status/1675852610237255680\]
+On July 3, 2023, at 9:02 AM EST, Modhaus releases an ARTMS Shortcut %[https://twitter.com/official_artms/status/1675852610237255680]
 
-On July 3, 2023, at 11 AM EST, Modhaus releases the Music Video teaser for "Air Force One" %\[https://twitter.com/official\_artms/status/1675852610237255680\] %\[https://www.youtube.com/watch?v=FKo0tjVeAEU\]
+On July 3, 2023, at 11 AM EST, Modhaus releases the Music Video teaser for "Air Force One" %[https://twitter.com/official_artms/status/1675852610237255680] %[https://www.youtube.com/watch?v=FKo0tjVeAEU]
 
-On June 4, 2023, at 7 AM EST, Modhaus releases information about the ARTMS HaSeul Atom01 First Class First Edition Photo Cards which had a release time of June 5, 2023, at 7 AM EST %\[https://twitter.com/official\_artms/status/1676184086304415744\] On July 4, 2023, at 9:01 AM EST, Modhaus releases an ARTMS Shortcut %\[https://twitter.com/official\_artms/status/1676214587308531712\] On July 4, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE Meet and Greet being for sale %\[https://twitter.com/\_mymusictaste/status/1676244265293475841\]
+On June 4, 2023, at 7 AM EST, Modhaus releases information about the ARTMS HaSeul Atom01 First Class First Edition Photo Cards which had a release time of June 5, 2023, at 7 AM EST %[https://twitter.com/official_artms/status/1676184086304415744] On July 4, 2023, at 9:01 AM EST, Modhaus releases an ARTMS Shortcut %[https://twitter.com/official_artms/status/1676214587308531712] On July 4, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE Meet and Greet being for sale %[https://twitter.com/_mymusictaste/status/1676244265293475841]
 
 On July 5, 2023 at 7 AM EST, Modhaus releases **"**[ARTMS ; Haseul.object](https://www.youtube.com/watch?v=cRPg1JLYHzM) **"** HaSeul announces the release of her first object through the Cosmo app. She promises to showcase a diverse and beautiful collection of objects in the future. HaSeul expresses her gratitude and asks everyone to look forward to it with excitement. The object release is a significant milestone for HaSeul. She thanks her fans for their support.
 
@@ -571,7 +571,7 @@ On July 5, 2023, at 9:02 AM EST, Modhaus releases an ARTMS short
 
 %[https://twitter.com/official_artms/status/1676577398136127490] 
 
-On July 5, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE ARTMS are inviting you to join them for their 2023 ODD EYE CIRCLE in LONDON🇬🇧 %\[https://twitter.com/\_mymusictaste/status/1676577049518170112\]
+On July 5, 2023, Modhaus retweets MyMusicTaste's tweet about the ODD EYE CIRCLE ARTMS are inviting you to join them for their 2023 ODD EYE CIRCLE in LONDON🇬🇧 %[https://twitter.com/_mymusictaste/status/1676577049518170112]
 
 On July 5, 2023, at 11 AM EST, Modhaus releases the Track List
 
@@ -589,7 +589,7 @@ On July 6, 2023, at 11 AM EST, Modhaus releases
 
 On July 6, 2023, at 11 AM EST, Modhaus releases
 
-%\[https://twitter.com/official\_artms/status/1676969412853927942\] On July 6, 2023, at 11 AM EST, Modhaus releases
+%[https://twitter.com/official_artms/status/1676969412853927942] On July 6, 2023, at 11 AM EST, Modhaus releases
 
 %[https://twitter.com/official_artms/status/1676969488586268672] 
 
@@ -613,7 +613,7 @@ On July 7, 2023, at 9:02 EST, Modhaus releases a video on the tripleS channel. A
 
 %[https://www.youtube.com/watch?v=HueewDtH400] 
 
-On July 7, 2023, Modhaus retweets the tour announcement tweet from MyMusicTaste for the Berlin Show %\[https://twitter.com/\_mymusictaste/status/1677302067743035395\]
+On July 7, 2023, Modhaus retweets the tour announcement tweet from MyMusicTaste for the Berlin Show %[https://twitter.com/_mymusictaste/status/1677302067743035395]
 
 On July 8, 2023, at 9 :03AM EST, Modhaus releases an ARTMS short
 
