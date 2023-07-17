@@ -9,6 +9,7 @@ tags: kpop, artms
 
 (https://entertain.naver.com/now/read?oid=117&aid=0003708500)
 
+
 %[https://entertain.naver.com/now/read?oid=117&aid=0003708500] 
 
 [On March 31, 2023, NME releases the Jaden interview](https://www.nme.com/news/music/loona-modhaus-heejin-kim-lip-jinsoul-choerry-jaden-jeong-plans-future-3423740)
@@ -709,3 +710,31 @@ On July 11, 2023, at 11 AM EST, Modhaus releases the premiere for ODD EYE CIRCLE
 %[https://twitter.com/official_artms/status/1678781199282585600] 
 
 %[https://www.youtube.com/watch?v=UDxID0_A9x4]
+
+On July 11, 2023, at 5:18 AM EST, Modhaus releases Mnet M Countdown main broadcast participation notification for July 13th, 2023.
+
+
+%[https://twitter.com/official_artms/status/1678695162602729473]
+
+
+On July 12, 2023, Modhaus retweets 1thek post about the suit dance coming soon 
+
+
+%[https://twitter.com/1theK/status/1679007683343683585?s=20]
+
+
+On July 12, 2023, Modhaus retweets ktown4u_coex tweet abourt the popup store availability 
+
+%[https://twitter.com/Ktown4u_coex/status/1679007684006215680?s=20]
+
+On July 12, 2023, Modhaus retweets MnetMcountdown tweet about the lineup for July 13, 2023
+
+%[https://twitter.com/MnetMcountdown/status/1679009643845255168?s=20]
+
+
+
+
+
+
+
+
