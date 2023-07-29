@@ -1,8 +1,8 @@
 ---
-title: "Odd Eye Circle <Version Up>"
+title: "Odd Eye Circle <Version Up> | Credits"
 datePublished: Sat Jul 29 2023 02:04:15 GMT+0000 (Coordinated Universal Time)
 cuid: clkndczf9000409l8ajsz4txx
-slug: odd-eye-circle-version-up-1
+slug: odd-eye-circle-version-up-credits
 tags: kpop
 
 ---
